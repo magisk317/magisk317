@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @magisk317
-- 👀 I’m interested in 搞基？
+- 👀 I’m interested in %……&*%……*（）？
 - 🌱 I’m currently learning Tangping
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
